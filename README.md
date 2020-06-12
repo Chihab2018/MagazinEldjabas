@@ -1,1 +1,1 @@
-# MagazinEldjabas
+# Magazin  Eldjabas
